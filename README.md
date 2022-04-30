@@ -1,2 +1,2 @@
 # -KINGKORONA-
-🤺KING KORONA🤺💥
+<h6>🤺KING KORONA🤺🔥</h6>
