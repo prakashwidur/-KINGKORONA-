@@ -16,3 +16,4 @@
 
 
 crate by prakash widura lakshan.pawerd by rawana v2 whatsapp use bot. thanks my rawana v2 whatsapp user bot use.
+pawerd by Rawana bot v2.
